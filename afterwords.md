@@ -1,0 +1,2 @@
+akhiran
+udah itu aja
